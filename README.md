@@ -1,0 +1,1 @@
+# SharpestMinds_mini_projects
